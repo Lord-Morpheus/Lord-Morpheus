@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working on open source contributions<br>👯 I’m looking to collaborate to Openprinting<br>🌱 I’m currently learning many new Skills<br>⚡ Fun fact "Your hair does not grow thicker everytime you shave it."
 
 
 ## 🌐 Socials:
